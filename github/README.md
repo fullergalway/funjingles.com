@@ -1,2 +1,0 @@
-# funjingles.com
-Website pages
